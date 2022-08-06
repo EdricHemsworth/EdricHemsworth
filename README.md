@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Anything you want too.**
 
-- 📫 How to reach me **sujalsoni1440@gmail.com**
+- 📫 How to reach me **piratesyebewarned7@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
