@@ -9,11 +9,13 @@
 
 - 🔭 I’m currently working on **some Websites**
 
-- 🌱 I’m currently learning **Java,JavaScript,php,Android etc**
+- 🌱 I’m currently learning **Java,JavaScript,php,Android.**
 
 - 💬 Ask me about **Anything you want too.**
 
 - 📫 How to reach me **piratesyebewarned7@gmail.com**
+<img src="https://user-images.githubusercontent.com/89583476/186887959-e04c9ead-8568-49cd-b284-d0e970aab4c0.png" height="60" width="40" />
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
