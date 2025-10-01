@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Anything you want too.**
 
-- 📫 How to reach me **piratesyebewarned7@gmail.com**
+- 📫 How to reach me **joven0461@gmail.com**
 <img src="https://user-images.githubusercontent.com/89583476/186887959-e04c9ead-8568-49cd-b284-d0e970aab4c0.png" height="60" width="40" />
 
 
